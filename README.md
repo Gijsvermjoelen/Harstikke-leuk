@@ -1,6 +1,6 @@
 # Harstikke-leuk
 + Ik meen het
 + Vrede op aarde!
-+ Ik ben van plan een aanslag te plegen op de europese rechtstaat!!!
++ Ik hoop dat je je kleine teen stoot
 + Frankrijk bestaat niet echt
 
